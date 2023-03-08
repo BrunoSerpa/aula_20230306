@@ -4,4 +4,4 @@
 
 O caique fez alteração
 
-não satisfeito alterei mais uma vez
+não satisfeito alterei mais uma vez.
